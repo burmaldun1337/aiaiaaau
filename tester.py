@@ -1,0 +1,4 @@
+burmalda
+
+
+eshe ne navibecodil
